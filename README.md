@@ -1,6 +1,6 @@
-### Bem vindos 🌼
+### Oi, Eu sou a Amanda! 🌼
 
-- 📫 How to reach me: amandammv0@gmail.com
-- 😄 Pronouns: Ela/Dela
+- ✉ How to reach me: amandammv0@gmail.com
+- 🌼 Pronouns: Ela/Dela
 
 
